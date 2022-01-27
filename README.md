@@ -1,5 +1,5 @@
-- ###👋 Hi，我是禤酒，是一名水平不太高的同人文手。（努力进步中……）
-- ###Hi, I'm Xuan Jiu. A fan fiction writer but NOT very good.（I'm trying to improve……）
+- ### 👋 Hi，我是禤酒，是一名水平不太高的同人文手。（努力进步中……）
+- ### Hi, I'm Xuan Jiu. A fan fiction writer but NOT very good.（I'm trying to improve……）
 - 👀 发文平台：
 - Platforms for publishing articles:
 - 🌱 乐乎（Lofter）：禤酒
